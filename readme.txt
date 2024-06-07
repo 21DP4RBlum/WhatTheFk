@@ -1,0 +1,1 @@
+Ja godīgi lielāko daļu izdarīju 06-07 (jūn) naktī
